@@ -1,1 +1,1 @@
-Made with love by Aryan Rana, Dilpreet Singh and Aryan Namdev.
+Made with love by Aryan Namdev, Dilpreet Singh and Aryan Rana.
